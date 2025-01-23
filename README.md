@@ -64,9 +64,3 @@ Feel free to connect or to follow me here 👇🏾
 
 Also, don't forget to ⭐ this repository 😁
 
-
-# 😍You like what Iam doing?
-
-How about buying me a coffee so that I keep doing it 😁👇🏾
-
-[☕ Buy me a coffee](https://www.buymeacoffee.com/mustfaibra)
